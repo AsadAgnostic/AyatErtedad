@@ -1,0 +1,2 @@
+# AyatErtedad
+Ertedad in Islam
